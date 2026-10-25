@@ -5,6 +5,7 @@
 hi ! <3 call me leo!
 
 <img width="374" height="211" alt="bsd-arthur" src="https://github.com/user-attachments/assets/601518a9-f7ea-4101-badc-b440c53f8f0c" />
+
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶
 
 feel free to int/cuddle on ponytown! Check strawpage for more info + my socials
